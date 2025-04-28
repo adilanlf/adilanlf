@@ -45,6 +45,7 @@ Atualmente, estudo e busco constantemente novos conhecimentos para construir min
 - 🎮 Jogar videogame
 - 🎬 Assistir filmes e séries
 - 🏄 Surfar
+- ⚽ Jogar bola
 - 📚 Ler livros
 
 ---
